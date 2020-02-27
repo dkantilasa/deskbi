@@ -1,1 +1,1 @@
-ini baru nih
+paling baru coy
